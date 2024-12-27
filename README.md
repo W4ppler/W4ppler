@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 🌱 I’m currently learning Networking Technology
+- 💬 Ask me about anything
+- 📫 How to reach me: Discord
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: Lewakas
